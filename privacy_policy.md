@@ -1,5 +1,5 @@
 #Privacy Policy
-Last modified: August 15, 2013
+Last modified: March 26, 2015
 ###Introduction
 Your privacy is very important to us. You've probably heard that before, but we truly mean it. This Policy will help you to understand how we collect, use, and disclose any of your personal information. If you have any questions, feel free to contact us at:
 
